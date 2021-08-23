@@ -1,6 +1,6 @@
 ## Welcome to d🕸/, dWeb, decentralized web, the New Internet!
 
-# Know Thyself, Know Your Birth Rights, Claim Thy Eternal "I AM" Presence as Divine Sovereignty!
+# Know Thyself, Know Your Birth Rights, Claim Thy Eternal "I AM" Presence as Divine Sovereignty Within You!
 - Do not be fooled into believing in the legitimacy of "authority", yet discredit it as being a belief in the legitimacy of "slavery". Beyond Belief, Natural Law Reigns Over All!
 - Do not get it twisted. It is not you or me that shines, but the I AM THAT I AM presence shining through you and me.
 # Own the web with a [Handshake](https://handshake.org/) Top Level Domain, Bid on this domain at [Namebase.io](https://namebase.io/domains/xn--d-rn3s). 
