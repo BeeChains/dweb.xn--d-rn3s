@@ -7,3 +7,6 @@
 - Import the New Internet! Use your [Bob Wallet](https://bobwallet.io/) to get the [Root Of The Internet](http://rootoftheinternet.hns.to/).
 - Want a decentralized link like [dlink.iinc/](http://dlink.iinc.hns.to/) or a decentralized website like the one your viewing? 
 # visit [Inner I Net Company/](http://shapereality.innerinetcompany.hns.to/) and [HNS-DOMAINS/](http://home.hns-domains.hns.to/)
+
+# Channel within [#innerinet&company](https://webchat.hybridirc.com/#innerinet&company)
+<iframe src="https://kiwiirc.hybridirc.com/#innerinet&company" allow="microphone; camera; display-capture; fullscreen" style="border:0; width:100%; height:500px;"></iframe>
