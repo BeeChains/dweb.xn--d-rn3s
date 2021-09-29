@@ -1,4 +1,4 @@
-## Welcome to d🕸/, dWeb, decentralized web, the New Internet!
+## Welcome to [d🕸/](http://xn--d-rn3s.hns.to/), dWeb, decentralized web, the New Internet!
 
 # Know Thyself, Know Your Birth Rights, Claim Thy Eternal "I AM" Presence as Divine Sovereignty Within You!
 - Do not be fooled into believing in the legitimacy of "authority", yet discredit it as being a belief in the legitimacy of "slavery". Beyond Belief, Natural Law Reigns Over All!
