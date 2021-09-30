@@ -3,6 +3,7 @@
 # Know Thyself, Know Your Birth Rights, Claim Thy Eternal "I AM" Presence as Divine Sovereignty Within You!
 - Do not be fooled into believing in the legitimacy of "authority", yet discredit it as being a belief in the legitimacy of "slavery". Beyond Belief, Natural Law Reigns Over 
 All!
+- Do not get it twisted. It is not you or me that shines, but the I AM THAT I AM presence shining as The "I" in you and me.
 - Rise early and think upon your deeds, and of the world to come; for you may be certain that the fruits of all your deeds will think upon you. — ANCIENT SANSKRIT VERSE
 
 # Own the web with a [Handshake](https://handshake.org/) Blockchain Top Level Domain, Bid on this domain at [Namebase.io](https://namebase.io/domains/xn--d-rn3s). 
